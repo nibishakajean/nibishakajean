@@ -37,4 +37,4 @@ which has equipped me with a solid understanding of fundamental principles that 
   For any inquiries or collaborations, feel free to reach out to me at [jfnibishaka@gmail.com](mailto:jfnibishaka@gmail.com).
 
 
-<!-- 🌐 Connect with me on [LinkedIn](your LinkedIn profile URL) to stay updated on my latest projects and endeavors!-->
+ 🌐 Connect with me on [LinkedIn](https://www.linkedin.com/in/jean-felix-n-a4918930a?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BcCibh6FOSzSACkDde%2FIYtA%3D%3D) to stay updated on my latest projects and endeavors!
